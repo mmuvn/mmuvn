@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @mmuvn
-- 👀 ahhahhahhahahahahha
-- 🌱 I’m goiNg to kms
+thy end is now
+- 👀 prepare thyself
+- 🌱 die
 - 💞️ coding amature
 - srse
 - 📫 i hav discord
